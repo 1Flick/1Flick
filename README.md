@@ -4,5 +4,5 @@
 - I do some tiktoks by hobbie
 - Studying Software Engineering
 
-Discord: 2db0
+Discord: instapickjett
 Tiktok: @Delta_Flick
